@@ -12,7 +12,6 @@ Welcome to SexualAI, your go-to directory for the best AI-powered NSFW sites on 
     - [Browse](#browse)
     - [Select](#select)
     - [Enjoy](#enjoy)
-  - [Our Partners](#our-partners)
   - [Contact](#contact)
 
 ## Categories
@@ -63,36 +62,8 @@ When you've found a site that sparks your interest, simply click the "Visit" but
 
 ## Contact
 
-For any inquiries or support, please feel free to reach out to us through our [Contact](#) page.
+For any inquiries or support, please feel free to reach out to us through our [Contact](https://sexualai.net/contact) page.
 
 ---
 
 **Copyright © 2026 SexualAI.net - All rights reserved**
-
-## Sex Chat
-
-[Sex Chat](#)
-
-## Chatbots
-
-[Chatbots](#)
-
-## AI Sex Toy
-
-[AI Sex Toy](#)
-
-## Sex Toys
-
-[Sex Toys](#)
-
-## AI Sex Doll
-
-[AI Sex Doll](#)
-
-## Sex Dolls
-
-[Sex Dolls](#)
-
-## Sex Games
-
-[Sex Games](#)
