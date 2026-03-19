@@ -1,6 +1,7 @@
 # SexualAI : Directory of the best NSFW AI products & services
 <div align="center">  <a href="https://sexualai.net">    <img src="https://img.shields.io/badge/Visit%20the%20Site-007BFF?style=for-the-badge&logo=github" alt="Visit the Directory">  </a></div>
-<div align="center">  <p>Welcome to SexualAI, your go-to directory for the best AI-powered NSFW sites on the internet. Discover a world of adult toys, interactive dolls, sex games, and engaging companions, all powered by artificial intelligence. Whether you're looking for AI sex chat platforms, sex chatbots, AI sex toys, AI sex dolls, or AI-enhanced sex games, we've got you covered.</p></div>
+
+<p>Welcome to SexualAI, your go-to directory for the best AI-powered NSFW sites on the internet. Discover a world of adult toys, interactive dolls, sex games, and engaging companions, all powered by artificial intelligence. Whether you're looking for AI sex chat platforms, sex chatbots, AI sex toys, AI sex dolls, or AI-enhanced sex games, we've got you covered.</p>
 
 ## Table of Contents
 
