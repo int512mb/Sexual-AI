@@ -16,13 +16,11 @@ Welcome to SexualAI, your go-to directory for the best AI-powered NSFW sites on 
 
 ## Categories
 
-- [Sex Chat](https://sexualai.net/ai-chat/)
-- [Chatbots](https://sexualai.net/chatbots/)
+- [AI Sex Chat](https://sexualai.net/ai-chat/)
+- [AI Chatbots](https://sexualai.net/chatbots/)
 - [AI Sex Toy](https://sexualai.net/ai-sextoy/)
-- [Sex Toys](https://sexualai.net/ai-sextoy/)
 - [AI Sex Doll](https://sexualai.net/ai-sexdoll/)
-- [Sex Dolls](https://sexualai.net/ai-sexdoll/)
-- [Sex Games](https://sexualai.net/ai-sexgames/)
+- [AI Sex Games](https://sexualai.net/ai-sexgames/)
 
 ## Browse the Best AI NSFW Apps
 
